@@ -2,6 +2,7 @@
 
 I am a finance and accounting student at Baldwin Wallace University.
 
+* For Resume, click [here] (https://rawcdn.githack.com/kardner27-hub/kardner27-hub/0592f934e588edb32c726f06f74ae98e63fec0d5/Kevin%20Ardner%20Resume.pdf)
 ---
 
 ### 🎓 About Me
